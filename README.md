@@ -1,2 +1,2 @@
-# SyntaXCovert---Links
+# SyntaXCovertLinks
 links lol
